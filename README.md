@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-  Fortaleza, CE · Disponível para novas oportunidades
+  Fortaleza, CE
 </p>
 
 ---
